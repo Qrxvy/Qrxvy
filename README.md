@@ -1,4 +1,4 @@
-- 👋 # Hi, I’m @Qrxvy
+- 👋 Hi, I’m @Qrxvy
 - 👀 I’m interested in Sports, Music, Technic
 - 🌱 I’m currently learning school
 - 📫 How to reach me: simon.kramer04@gmail.com
